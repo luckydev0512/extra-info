@@ -5,7 +5,7 @@ Upwork verifies a personâ€™s ID, which is why I collaborate with others. I canâ€
 - I will provide my email for registration..
 - You can use your phone number for verification.
 - After finishing registration, please use this to set up your profile.
-https://docs.google.com/document/d/e/2PACX-1vSKiC4vPx3_FZ7ulrUAu5KilMGKBxof9KdEOPbllhKqPnAm6GpnxoX3jWNLz8ukf7kbVADeHt1hjuQN/pub 
+[https://docs.google.com/document/d/e/2PACX-1vSKiC4vPx3_FZ7ulrUAu5KilMGKBxof9KdEOPbllhKqPnAm6GpnxoX3jWNLz8ukf7kbVADeHt1hjuQN/pub ](https://docs.google.com/document/d/1RJxNEV7_ePIOKehHzSTRzlFYkAqd7fXS3riJ7leyjZA/edit?usp=sharing)
 - Now you need to verify your ID.
 To verify your ID on the Upwork site, you need to buy Connects.
 To buy Connects, you have to deposit money, so I will send you $15. Then you can deposit it into your account, purchase Connects, and verify your ID.
