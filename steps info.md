@@ -1,30 +1,29 @@
 ## 1.  Creating upwork account
-Upwork allows each person to create only one account. 
-Upwork verifies person's ID, so that's why I am collaborating with other guys. I can't create several account with my personal Info.
+Upwork allows each person to create only one account.
+Upwork verifies a person’s ID, which is why I collaborate with others. I can’t create multiple accounts using my personal information.
 
-- I will provide my email for registeration.
-- You can use your phone number for phone number verification
-- After finish registeration, I made the guide to setup
-Please use this content:
+- I will provide my email for registration..
+- You can use your phone number for verification.
+- After finishing registration, please use this to set up your profile.
 https://docs.google.com/document/d/e/2PACX-1vSKiC4vPx3_FZ7ulrUAu5KilMGKBxof9KdEOPbllhKqPnAm6GpnxoX3jWNLz8ukf7kbVADeHt1hjuQN/pub 
-- Now you have to verify your ID
-To verify your ID, on upwork site, you have to buy connects.
-To buy connects, you have to deposit money, so I will send 15$ for you, then you deposit it to your account and you have to buy connects and verify your ID.
+- Now you need to verify your ID.
+To verify your ID on the Upwork site, you need to buy Connects.
+To buy Connects, you have to deposit money, so I will send you $15. Then you can deposit it into your account, purchase Connects, and verify your ID.
 
-**If you finish your ID verification, then I will pay for you $50 as upfront before I use your account.**
+**If you complete your ID verification, I will pay you $50 upfront before I use your account.**
 
 ## 2. How can I use your account?
-Upwork rule is very strict, and they detects IP and all kinds of strange attempts, so I have to use your upwork account on your side remotely.
+Upwork’s rules are very strict, and they detect IP addresses and other unusual activity, so I would need to use your Upwork account remotely from your side.
 
-Of course,  I will send you a new pc for using your upwork account and I need you to turn on new PC with your upwork account all the time, so that I can search jobs and work on there.
+Of course, I will send you a new PC for using your Upwork account, and I need you to keep it on with your Upwork account logged in at all times so I can search for jobs and work on it.
 
-**After finish all necessary things, I will pay for you another 50$ as upfront before I use your account.**
+**After completing all necessary steps, I will pay you an additional $50 upfront before using your account.**
 
-This will be helpful for our trustworthy.
+This will help build trust between us.
 
 ## 3. Support & Payment
-Sometimes I may need your support to use your account safely and successfully, and you have to help me at those times if you can.
+Sometimes I may need your support to use your account safely and successfully, and I would appreciate your help whenever possible.
 
-I will share profit 10%, but for the 2-3 months, it is difficult to work on big project, so the profit share can be less than 200$. 
-In this case, I will pay you 200$ in a month.
-I am sure all things will go well after 2-3 months.
+I will share 10% of the profit. However, for the first 2–3 months, it may be difficult to work on large projects, so the profit share may be less than $200.
+In that case, I will pay you $200 per month. 
+I’m confident that everything will go well after 2–3 months.
