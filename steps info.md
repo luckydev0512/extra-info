@@ -2,7 +2,7 @@
 Upwork allows each person to create only one account.
 Upwork verifies a person’s ID, which is why I collaborate with others. I can’t create multiple accounts using my personal information.
 
-- I will provide my email for registration..
+- You have to create new email for upwork account. It would be better not using your personal email for both of us.
 - You can use your phone number for verification.
 - After finishing registration, please use this to set up your profile.
 [https://docs.google.com/document/d/e/2PACX-1vSKiC4vPx3_FZ7ulrUAu5KilMGKBxof9KdEOPbllhKqPnAm6GpnxoX3jWNLz8ukf7kbVADeHt1hjuQN/pub ](https://docs.google.com/document/d/1RJxNEV7_ePIOKehHzSTRzlFYkAqd7fXS3riJ7leyjZA/edit?usp=sharing)
